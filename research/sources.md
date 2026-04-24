@@ -1,7 +1,7 @@
 # Research Sources
 ## Topic: LinkedIn organic content strategy experts for B2B SaaS
 ## 1. Justin Welsh
-Founder, writer and angel investor 
+Founder, writer and angel investor, 
 LinkedIn Profile: https://www.linkedin.com/in/justinwelsh/
 ## 2. Dave Gerhardt
 Founder - Exit Five, B2B Marketing Expert
